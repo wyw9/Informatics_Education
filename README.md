@@ -1,1 +1,1 @@
-# Informatics_Education
+# Informatics Education
